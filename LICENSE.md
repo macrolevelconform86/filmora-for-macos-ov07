@@ -1,4 +1,4 @@
-# 
+# Enhance Filmora for macOS with automatic Filmora for macOS Automation | echo-removal + cloud-sync, the #1 automation. Includes echo-removal and cloud-sync for a smoother and more
 
 
 
